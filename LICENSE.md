@@ -1,4 +1,4 @@
-# 
+# Adobe Photoshop for macOS professional Automation - vector tools and typography tools offers the most advanced Adobe Photoshop for macOS automation, with vector tools and
 
 
 
